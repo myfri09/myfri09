@@ -1,1 +1,1 @@
-# Hola, Grüezi, Hello 👋👨‍💻
+# Hola, Grüezi, Hello 👋🏼👨‍💻
